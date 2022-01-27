@@ -1,5 +1,4 @@
-# Gabriel Suchowolski ☻ Creative / Senior Art Director 
-# & Co-Founder of @domestika 
+# Gabriel Suchowolski ☻ Creative / Senior Art Director & Co-Founder of @domestika 
 ### ☺︎ #NFT → http://lynkfire.com/microbians — http://discord.gg/VQ8cuMa7fu - $ASH + C.
 
 ## 🌐Socials
